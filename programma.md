@@ -7,4 +7,4 @@
 - **19 maggio 2026** - Nadia Scanavino, *I preverbi nel greco medievale - metodi e prospettive di ricerca*
 - **26 maggio 2026** - Lorenzo Costabile, *Oralità nel doppiaggio inglese: prospettive multidimensionali e studio pilota* 
 
-Tutti gli incontri si terranno dalle 18.30 alle 19.30; a seguire bevi qualcosa con noi!
+Tutti gli incontri si terranno dalle **18.30** alle **19.30**; a seguire, bevi qualcosa con noi!
