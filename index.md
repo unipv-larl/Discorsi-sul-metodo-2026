@@ -5,3 +5,7 @@ Durante gli incontri, i dottorandi e le dottorande della Sezione di Linguistica 
 Il ciclo di seminari avrà luogo tra il **21 aprile** e il **26 maggio 2026** e si terrà ogni martedì alle **18.30-19.30** in **Aula III, Palazzo Centrale**. 
 
 Quest'anno gli incontri si concluderanno con un finale a sorpresa - stay tuned!
+
+## [Programma](programma.md)
+
+## Edizione prcedente
