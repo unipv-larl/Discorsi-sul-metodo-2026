@@ -8,6 +8,6 @@ Quest'anno gli incontri si concluderanno con un finale a sorpresa - stay tuned!
 
 ## [Programma](programma.md)
 
-## Edizione precedente
+## [Edizione precedente](locandina2025.png)
 
 Per informazioni: Chiara Zanchi (chiara.zanchi@unipv.it)
